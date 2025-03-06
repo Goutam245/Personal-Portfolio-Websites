@@ -1,5 +1,6 @@
-Goutam Roy - Professional Portfolio
-Welcome to my personal portfolio website, a digital space where creativity, innovation, and expertise come together. This website is designed to showcase my skills, professional experience, and a collection of my best projects in a visually appealing and user-friendly manner.
+Goutam Roy - Professional Portfolio ✨🚀
+
+Welcome to my personal portfolio website, a digital space where creativity 🎨, innovation 💡, and expertise 🏆 come together. This website is designed to showcase my skills 🛠️, professional experience 📂, and a collection of my best projects 📌 in a visually appealing and user-friendly manner. 🚀
 
 Website Features & Design
 1. Stunning Visual Design
